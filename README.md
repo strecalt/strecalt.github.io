@@ -1,0 +1,1 @@
+# strecalt.github.io
